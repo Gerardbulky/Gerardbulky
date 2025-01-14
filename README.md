@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **gerardambe@yahoo.com**
 
-- ⚡ Fun fact **I am Extrovert**
+- ⚡ Fun fact **I love technology**
 
 - 📄 Know about my experiences [www.linkedin.com/in/gerard-ambe-80050b152/](www.linkedin.com/in/gerard-ambe-80050b152/)
 
